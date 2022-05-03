@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DonRamon777
 - 👀 I’m interested in petas
 - 🌱 I’m currently learning drug trafficking
-- 💞️ I’m looking to collaborate on mexican cartel
+- 💞️ I’m looking to collaborate with the mexican cartel
 - 📫 How to reach me dm @BarackObama
 
 <!---
