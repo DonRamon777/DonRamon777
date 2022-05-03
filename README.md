@@ -2,7 +2,7 @@
 - 👀 I’m interested in petas
 - 🌱 I’m currently learning drug trafficking
 - 💞️ I’m looking to collaborate with the mexican cartel
-- 📫 How to reach me dm @BarackObama
+- 📫 How to reach me: dm @BarackObama
 
 <!---
 DonRamon777/DonRamon777 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
